@@ -5,3 +5,5 @@
 4. Nanda Kopling
 5. Khuncay Rem Blong
 6. Febrio Jalu Stang
+7. Wibi Jogging
+8. Wisnu Tegal
